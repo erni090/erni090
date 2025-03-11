@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @erni090
+- 👀 I’m interested in technology, sport, art and music. 
+- 🌱 I’m currently learning web developping
+- 📫 How to reach me e-mail: ernesto.micillo990@gmail.com
